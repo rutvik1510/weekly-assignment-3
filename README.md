@@ -1,1 +1,0 @@
-# weekly-assignment-3
